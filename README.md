@@ -1,0 +1,1 @@
+# galaxynote20ultra_PDF_optimization
